@@ -1,2 +1,0 @@
-# Musikphysiologie 
-Beratung & co

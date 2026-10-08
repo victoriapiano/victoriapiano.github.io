@@ -1,3 +1,0 @@
-# Konzerte
-
-## Übersicht meiner Konzerte
