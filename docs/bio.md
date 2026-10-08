@@ -10,4 +10,4 @@ Ergänzend zu ihrem Studium besuchte sie regelmässig Meisterkursen bei renommie
  
 Als Solistin sowie in verschiedenen Ensembles und Orchestern trat Victoria bereits in Chile, Russland, Ungarn und in der Schweiz auf. Regelmässig nimmt sie an internationalen Festivals im Bereich Kammermusik teil. 2019 hat sie zusammen mit ihrem Ensemble „Trio Chile“ den Grand-Prix in Kammermusik im Wettbewerb „Offenes Europa, offener Planet“ in Moskau erhalten. 
 
-Seit Februar 2025 unterrichtet sie eine Klavierklasse an der Musikschule Wil im Kanton St. Gallen. 
+Seit Februar 2025 unterrichtet sie eine Klavierklasse an der Musikschule Wil im Kanton St. Gallen. Seit dem Sommer 2026 unterrichtet sie auch privat im Kanton Zürich. Sie führt eine aktive Konzerttätigkeit in der Schweiz mit verschiedenen Ensembles. 
